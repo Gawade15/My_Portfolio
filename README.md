@@ -5,7 +5,10 @@
 
 
 
-![image](https://github.com/Gawade15/My_Portfolio/assets/95995255/c98d3c86-5f50-459b-8a47-0c3e0faacb48)
+
+
+![image](https://github.com/Gawade15/My_Portfolio/assets/95995255/0b625994-206c-4c67-89bb-61d311dd01cd)
+
 
 
 
